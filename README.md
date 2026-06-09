@@ -1,0 +1,1 @@
+# AllegoryOmori.github.io
